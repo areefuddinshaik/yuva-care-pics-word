@@ -1,0 +1,1 @@
+# yuva-care-pics-word
